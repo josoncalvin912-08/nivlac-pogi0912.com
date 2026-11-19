@@ -7,6 +7,8 @@ Thou hast established a new bond...
   </p>
 
 ##  About Me
+Hi, I'm Calvin Josef A. Joson
+
 I am primarily an introvert, but I can be extroverted with the right people. I enjoy listening to, geeking out and playing music. I appreciate all forms of art and often
 times, it becomes a topic of conversation for me. I cannot say that I am the most helpful person, but I try to help others to the best of my ability.
 
