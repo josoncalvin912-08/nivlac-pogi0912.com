@@ -29,6 +29,8 @@ times, it becomes a topic of conversation for me. I cannot say that I am the mos
 
 [Midterm Lab Task #2](https://github.com/josoncalvin912-08/nivlac-pogi0912.com/blob/main/labtask2.pdf) - 3D Arrays
 
+[Midterm Lab Task #3](https://github.com/josoncalvin912-08/nivlac-pogi0912.com/blob/main/labtask%203.pdf) - methods
+
 --- 
 
 ##  Facts About Me:
